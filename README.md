@@ -1,0 +1,3 @@
+- Hi, I’m Lucy
+- I’m interested in games & programming
+- How to reach me Discord: Lucore#4142
